@@ -9,7 +9,6 @@ http://willsworld.blogs.edina.ac.uk/
 Or to view the information on the Will's World Hack event see our wiki:
 http://willsworld.edina.ac.uk/wiki/
 
-Thanks
+Thanks!
 
-Muriel Mewissen, Neil Mayo, Nicola Osborne,
-Will's World Project Team.
+- Muriel Mewissen, Neil Mayo, Nicola Osborne, Will's World Project Team.
